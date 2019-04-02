@@ -1,1 +1,0 @@
-# https-kitsada.statuspage.io
